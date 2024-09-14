@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sbrcoding
+- 👀 I’m interested in all things tech and coding related, as well as art and music!
+- 🌱 I’m currently learning Java and C++!
+- 💞️ I want to collaborate on any project that could teach me new skills.
+- 📫 You can reach out to me at sbrownprofessional2009@gmail.com if you have any questions!
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I first learned to code through Minecraft!
